@@ -1,0 +1,2 @@
+# learning
+persiapan tugas akhir
